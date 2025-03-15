@@ -1,0 +1,1 @@
+Hallo, bist du der Andy, mit dem wir auf Fiverr über den Trading-Bot kommuniziert haben? Ich bin Hassan. Bitte lass es mich wissen, da wir auf diesem Konto aus bestimmten Gründen nicht kommunizieren können
